@@ -2,7 +2,7 @@
 
 ### Ingredientes
 
-- 1 colher de manteiga
+- 1 colher de sopa de manteiga
 
 - 1 cebola média picada em cubos
 - 6 dentes de alho
